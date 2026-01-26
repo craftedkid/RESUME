@@ -7,8 +7,8 @@
 
 📫 **Contact**  
 - Email: omspawar198@gmail.com  
-- LinkedIn: (Add your LinkedIn link here)  
-- GitHub: https://github.com/<your-username>
+- LinkedIn: https://www.linkedin.com/in/omspawar2n707/  
+- GitHub: https://github.com/<craftedkid>
 
 ---
 
